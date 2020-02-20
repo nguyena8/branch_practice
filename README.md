@@ -14,4 +14,4 @@ These are a few of my favorite things:
 - Getting sleep
 - Coffee
 - Tea
-- Nigger 
+- xin chào nigga 
